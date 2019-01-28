@@ -1,2 +1,2 @@
 # inie-github
-tus mejores guitarras invie-sibies
+tus mejores guitarras invie-sibles by @Platzi
